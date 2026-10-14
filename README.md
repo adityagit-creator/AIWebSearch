@@ -1,1 +1,1 @@
-# AIWebSearch for exploring particular business and what can someone bring to the table
+# AIWebSearch for exploring particular business and what  someone can bring to the table
